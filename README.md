@@ -1,2 +1,1 @@
-# Katya_diplomna
-Temporary repository
+----------------------------- INFORMATION -------------------------
